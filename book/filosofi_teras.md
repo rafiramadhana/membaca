@@ -14,6 +14,6 @@ By: Henry Manapiring
 
 - Film berjudul Gladiator yang disutradari Ridley Scott, tahun 2000, pada 15 menit pertamanya menggambarkan Kaisar Romawi bernama Marcus Aurelius
 - Tontonlah film Gladiator. Untuk saya sendiri, film itu tak terlupakan
-- Marcus Aurelius justru membutuhkan filsafat dan menuliskan setiap hari refleksi atas pengalamannya.
+- Marcus Aurelius justru membutuhkan filsafat dan menuliskan setiap hari refleksi atas pengalamannya
 - Mengikuti Epiktetos (seorang budak Romawi), ia selalu berlatih memilah "apa yang tergantung padaku dan apa yang tak tergantung padaku"
 - Marcus Aurelius mempraktikan kategori sulit dalam filsafat Stoa, yaitu, kathekonta (kewajiban-kewajiban sosial yang sebenarnya "tidak wajib", tetapi toh "selayaknya" dilakukan)
